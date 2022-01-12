@@ -1,2 +1,2 @@
-# Privacy-
-Privacy Policy
+# Terms of Service
+Accordingly, when you enter into the Terms of Service (TOS), you agree that you have read, understand, and agree that we can collect, use, and disclose your information in accordance with this Privacy Policy. If you do not agree or are not comfortable with any part of this Privacy Policy, you should not agree to the TOS (including this Privacy Policy) and you may not use the Base facility and Our Online Service.Our additional information about Privacy and Security practices,Data. Including our commitments with regard to the General Data Protection Regulation (GDPR), can be read on a special page about our compliance.
